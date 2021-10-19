@@ -1,4 +1,4 @@
-<h1>-CHEATS-Minion-Rush-Despicable-Me-Hack-Mod-APK-Unlimited-Tokens-Coins-</h1>
+<h1>CHEATS-Minion-Rush-Despicable-Me-Hack-Mod-APK-Unlimited-Tokens-Coins</h1>
 Despicable Me Minion Rush Hack Cheats Android Token and Unlimited Coins | iOS! 100% work
 
 Today we put at your service Despicable Me Minion Rush Hack. This is really a Despicable Me Minion Rush online hack that could generate unlimited tokens and Coins for your game account.
